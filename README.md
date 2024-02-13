@@ -1,2 +1,2 @@
 # Student
-on my to become software developer
+on my way to become software developer
